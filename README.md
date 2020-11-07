@@ -1,1 +1,2 @@
-# Chip-s-Red-Velvet-Cake
+# Chip's Red Velvet Cake 
+# Very Tasty Red Velvet Cake
